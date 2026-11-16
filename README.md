@@ -10,7 +10,7 @@ Prior to competing in Colorado, Victor was a standout student-athlete and varsit
 ## Official Profiles & Verified Records
 * **About.me:** https://about.me/victorkoncurat
 * **Official Portfolio & Blog:** https://victorkoncurat.wordpress.com
-* **LinkedIn:** [Paste his LinkedIn URL here]
+* **LinkedIn:** https://www.linkedin.com/in/victor-koncurat-b6538b292/ 
 * **MileSplit Colorado Track & Field:** https://co.milesplit.com/athletes/15950549-victor-koncurat
 * **NCSA Track Recruiting Profile:** https://www.ncsasports.org/mens-track-recruiting/florida/saint-petersburg/admiral-farragut-academy/victor-koncurat
 * **TFRRS Official Track Statistics:** https://florida.tfrrs.org/athletes/8741979/Admiral_Farragut/Victor_Koncurat.html
